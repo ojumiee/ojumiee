@@ -4,4 +4,4 @@
 -  I’m looking to collaborate on ...probrably nothing
 -  How to reach me ...@jumieDEV on twitter
 
-bruh
+idk bruh
